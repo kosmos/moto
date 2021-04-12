@@ -13,5 +13,5 @@
 
 ## Контакты
 Вопросы по документу можно оптравлять сюда:
-[https://facebook.com/chyngys](https://facebook.com/chyngys)
-[https://facebook.com/chyngys](https://instagram.com/palcemvglaz)
+- [https://facebook.com/chyngys](https://facebook.com/chyngys)
+- [https://facebook.com/chyngys](https://instagram.com/palcemvglaz)
